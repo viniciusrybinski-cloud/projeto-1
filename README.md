@@ -16,4 +16,4 @@ _tenha o minimo de bom gosto e escute_
 
 
 
-[voce nao esta preparado para ve isso]
+![voce nao esta preparado para ve isso](https://media.tenor.com/R1H_MzJh9w8AAAAi/esqueleto.gif)
